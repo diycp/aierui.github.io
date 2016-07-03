@@ -46,19 +46,13 @@ comments: false
 邮箱：<imland@outlook.com>
 
 微信：imland
+
 博客：[http://blog.shijinrong.cn](http://blog.shijinrong.cn)  **视己慎独**
+
 知乎：[@石金融](https://www.zhihu.com/people/imland) 
+
 微信公众号：Astonep
 ![](http://7xpqdb.com1.z0.glb.clouddn.com/astonepshijishendu.jpg)
 
 <h5 align = "center">喜欢我☝欢迎与我取得联系</h5>
-
-
-
-
-
-
-
-
-
 
